@@ -1,0 +1,1 @@
+# magntiocrystallic_anysotropy
